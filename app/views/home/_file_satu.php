@@ -1,1 +1,0 @@
-<p>Mohon maaf, website sentani.id sedang dalam perbaikan.</p>
